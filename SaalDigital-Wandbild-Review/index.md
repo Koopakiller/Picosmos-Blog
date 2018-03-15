@@ -48,17 +48,18 @@ Der Versand erfolgt gut verpackt per DHL und meiner Erfahrung nach schneller als
 
 ## Das fertige Bild
 
-Fantastisch! Das Bild sieht eigentlich genau so aus wie ich es mir vorgestellt habe. Der Kratz-Effekt ist wirklich toll, vor allem wenn sich Licht darüber spiegelt. Das kann man leider nur schwer in Worte ausdrücken und auch meine Fotos spiegeln es nur eingeschränkt wieder.
+Fantastisch! Das Bild sieht eigentlich genau so aus wie ich es mir vorgestellt habe. Der Kratz-Effekt ist wirklich toll, vor allem wenn sich Licht darüber spiegelt. Man könnte meinen, dass die Sonne auf dem Himmel entlang wandert.
+Das kann man leider nur schwer in Worte ausdrücken und auch meine Fotos spiegeln es nur eingeschränkt wieder.
 
 ![](DSC_0586.jpg)
 ![](DSC_0587.jpg)  
-_Zwei Bilder des fertigen Bildes, schräg mit einer provisorischen Halterung aufgestellt_
+_Zwei Bilder des fertigen Drucks, schräg mit einer provisorischen Halterung aufgestellt_
 
 Wenn man sehr nah ran geht sieht man dann auch den Kratz-Effekt etwas deutlicher, im allgemeinen ist er aber angenehm unauffällig und zeigt sich wirklich nur im durchscheinen der hellen Flächen und der schönen Reflektionen.
 
-[![](300_DSC_0591.jpg)](https://github.com/Koopakiller/Picosmos-Blog/raw/master/SaalDigital-Wandbild-Review/DSC_0591.jpg)
-[![](300_DSC_0593.jpg)](https://github.com/Koopakiller/Picosmos-Blog/raw/master/SaalDigital-Wandbild-Review/DSC_0593.jpg)
-[![](300_DSC_0610.jpg)](https://github.com/Koopakiller/Picosmos-Blog/raw/master/SaalDigital-Wandbild-Review/DSC_0610.jpg)  
+[![](270_DSC_0591.jpg)](https://github.com/Koopakiller/Picosmos-Blog/raw/master/SaalDigital-Wandbild-Review/DSC_0591.jpg)
+[![](270_DSC_0593.jpg)](https://github.com/Koopakiller/Picosmos-Blog/raw/master/SaalDigital-Wandbild-Review/DSC_0593.jpg)
+[![](270_DSC_0610.jpg)](https://github.com/Koopakiller/Picosmos-Blog/raw/master/SaalDigital-Wandbild-Review/DSC_0610.jpg)  
 _Detailaufnahmen des Drucks. Anklicken für größere Ansicht (größer als 10MB pro Bild)_
 
 
