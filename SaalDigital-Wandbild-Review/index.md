@@ -70,7 +70,6 @@ Zur Profilaufhängung kann ich noch nicht viel sagen. Da ich erst kürzlich umge
 
 
 
-
 ## Fazit
 
 Ich kann nbichts bemängeln. Versand ging schnell, die Qualität ist fantastisch und den Preis halte ich für angemessen und nicht zu teuer. Wer also ein Wandbild für sich oder andere bestellen möchte sollte unbedingt bei [Saal Digital](https://www.saal-digital.de/) vorbei schauen.
