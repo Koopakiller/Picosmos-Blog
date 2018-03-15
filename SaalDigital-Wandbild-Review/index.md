@@ -49,7 +49,7 @@ Der Versand erfolgt gut verpackt per DHL und meiner Erfahrung nach schneller als
 ## Das fertige Bild
 
 Fantastisch! Das Bild sieht eigentlich genau so aus wie ich es mir vorgestellt habe. Der Kratz-Effekt ist wirklich toll, vor allem wenn sich Licht darüber spiegelt. Man könnte meinen, dass die Sonne auf dem Himmel entlang wandert.
-Das kann man leider nur schwer in Worte ausdrücken und auch meine Fotos spiegeln es nur eingeschränkt wieder.
+Das kann man leider nur schwer in Worten ausdrücken und auch meine Fotos spiegeln es nur eingeschränkt wieder.
 
 ![](DSC_0586.jpg)
 ![](DSC_0587.jpg)  
@@ -72,4 +72,4 @@ Zur Profil-Aufhängung kann ich noch nicht viel sagen. Da ich erst kürzlich umg
 
 ## Fazit
 
-Ich kann nbichts bemängeln. Versand ging schnell, die Qualität ist fantastisch und den Preis halte ich für angemessen und nicht zu teuer. Wer also ein Wandbild für sich oder andere bestellen möchte sollte unbedingt bei [Saal Digital](https://www.saal-digital.de/) vorbei schauen.
+Ich kann nichts bemängeln. Versand ging schnell, die Qualität ist fantastisch und den Preis halte ich für angemessen und nicht zu teuer. Wer also ein Wandbild für sich oder andere bestellen möchte sollte unbedingt bei [Saal Digital](https://www.saal-digital.de/) vorbei schauen.
