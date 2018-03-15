@@ -22,7 +22,7 @@ Als Aufhängung kommen verschiedene Arten in Frage: Schraub-, Standard- und Prof
 Grundsätzlich mag ich Schraubaufhängungen bei dem man in den Ecken Löcher hat um es dort fest zu schrauben. Als Verblendung verwendet man hier üblicherweiße silberne Abdeckungen. Aufgrund der relativ kleinen Größe des Bildes (viel Platz habe ich leider nicht in meiner Wohnung) entschied ich mich jedoch für eine stabile aufgeklebte und nicht sichtbare Profil-Aufhängung.  
 Natürlich kann man das Bild aber auch komplett ohne Aufhängung bestellen, dann kann man die bedruckte Platte selbst zu Ende verarbeiten.
 
-![](DSC_0624.jpg)  
+![](DSC_0628.jpg)  
 _Bild der Profil-Aufhängung_
 
 Alle Details dieses Wandbilds kann auf auf der Seite von Saal Digital einsehen: http://www.saal-digital.de/wandbilder/alu-dibond-butlerfinish/  
@@ -67,3 +67,10 @@ _Detailaufnahmen des Drucks. Anklicken für größere Ansicht (größer als 10MB
 ## Aufhängung
 
 Zur Profilaufhängung kann ich noch nicht viel sagen. Da ich erst kürzlich umgezeogen bin steht es erstmal wie oben abgebildet auf einem Schrank. Sieht auch schick aus und mit der Profil-Aufhängung kann man da auch leicht selbst etwas basteln.
+
+
+
+
+## Fazit
+
+Ich kann nbichts bemängeln. Versand ging schnell, die Qualität ist fantastisch und den Preis halte ich für angemessen und nicht zu teuer. Wer also ein Wandbild für sich oder andere bestellen möchte sollte unbedingt bei [Saal Digital](https://www.saal-digital.de/) vorbei schauen.
