@@ -56,9 +56,9 @@ _Zwei Bilder des fertigen Bildes, schräg mit einer provisorischen Halterung auf
 
 Wenn man sehr nahe ran geht sieht man dann auch den Kratz-Effekt etwas deutlicher, im allgemeinen ist er aber angenehm unauffällig und zeigt sich wirklich nur im durchscheinen der hellen Flächen und der schönen Reflektionen.
 
-![](DSC_0591.jpg)
-![](DSC_0593.jpg)
-![](DSC_0610.jpg)
+![](200_DSC_0591.jpg)
+![](200_DSC_0593.jpg)
+![](200_DSC_0610.jpg)
 
 ## Aufhängung
 
