@@ -66,7 +66,7 @@ _Detailaufnahmen des Drucks. Anklicken für größere Ansicht (größer als 10MB
 
 ## Aufhängung
 
-Zur Profil-Aufhängung kann ich noch nicht viel sagen. Da ich erst kürzlich umgezeogen bin steht es erstmal wie oben abgebildet auf einem Schrank. Sieht auch schick aus und mit der Profil-Aufhängung kann man da auch leicht selbst etwas basteln.
+Zur Profil-Aufhängung kann ich noch nicht viel sagen. Da ich erst kürzlich umgezogen bin steht es erstmal wie oben abgebildet auf einem Schrank. Sieht auch schick aus und mit der Profil-Aufhängung kann man da auch leicht selbst etwas basteln.
 
 
 
