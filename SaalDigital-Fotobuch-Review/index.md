@@ -34,7 +34,7 @@ _Das fertige Fotobuch mit selbst gestaltetem Cover_
 
 Das Buch macht einen wertigen Eindruck und fast sich auch schön an. Durch die gewählte Oberfläche reiht es sich auch gut zwischen den anderen Fotobüchern ein. Ich habe auf einigen Seiten mehrere Fotos positioniert. Natürlich sieht man keinen Unterschied im Druck zum Hintergrund, trotzdem wirkte es im ersten Moment angenehm abgehoben. Das hängt sicher auch mit den gewählten Farben zusammen.
 
-![](450_DSC_0026.jpg)
+![](450_DSC_0026.jpg)  
 _Nahaufnahme eines Bereichs zwischen mehreren Fotos_
 
 ![](DSC_0024.jpg)  
@@ -43,8 +43,7 @@ _Beispiel einer selbst gestalteten Innenseite_
 Gegen einen Aufpreis von 5€ kann man den wirklich kleinen Code auf der Rückseite und auf der letzten Seite entfernen lassen. Laut Saal Digital ist dieser durch die Herstellung bedingt. Ich wollte wissen wie sehr er vielleicht stört und habe ihn absichtlich drin gelassen und Bilder für diese Stellen ausgewählt wo es nicht so sehr stören sollte.  
 Mein Fazit dazu: Der Code stört nicht wirklich bei den größeren Buch-Formaten. Bei kleineren sollte man vielleicht darauf verzichten, das muss aber jeder selbst wissen.
 
-![](450_DSC_0028.jpg)
-![](450_DSC_0030.jpg)  
+![](450_DSC_0028.jpg) ![](450_DSC_0030.jpg)   
 _Der kleine Code auf der letzten Innenseite und der Rückseite_
 
 
