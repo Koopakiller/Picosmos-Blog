@@ -17,7 +17,7 @@ Auch sonst kann man noch viel selbst aussuchen. Alle Details dazu findet man unt
 
 ## Gestaltung und Bestellung
 
-Einmal bietet Saal Digital ein eigenes Windows-Programm zur Gestaltung an, aber auch Vorlagen für Photoshop und InDesign sowie alle wichtigen Maße im [Profibereich](http://www.saal-digital.de/service/profibereich/) um alles komplett selbst zu gestalten. Als Linux-Benutzer bin ich da grundsätzlich erstmal etwas eingeschränkt, aber grundsätzlich kann man mit den gegebenen Maßen auch einfach selbst eine PDF-Datei erstellen und diese hoch laden. Das habe ich jedoch nicht gemacht, da ich sowieso mal wieder mit InDesign herum probieren wollte. Also doch Windows und das Adobe-Programm benutzt.
+Einmal bietet Saal Digital ein eigenes Windows-Programm zur Gestaltung an, aber auch Vorlagen für Photoshop und InDesign sowie alle wichtigen Maße im [Profibereich](http://www.saal-digital.de/service/profibereich/) um alles komplett selbst zu gestalten. Als Linux-Benutzer bin ich da erstmal etwas eingeschränkt, aber grundsätzlich kann man mit den gegebenen Maßen auch einfach selbst eine PDF-Datei erstellen und diese hoch laden. Das habe ich jedoch nicht gemacht, da ich sowieso mal wieder mit InDesign herum probieren wollte. Also doch Windows und das Adobe-Programm benutzt.
 
 Auch als Laie findet man sich eigentlich recht schnell zurecht und kann je eine PDF für das Cover und die Innenseiten erstellen. Zu beachten ist hier, dass die erste Innenseite wirklich bereits auf der Innenseite des Umschlags liegt. Möchte man also weiße Trennseiten haben, muss man diese extra einfügen. Im [Profibereich](http://www.saal-digital.de/service/profibereich/) findet man noch zusätzliche Hinweise um eine best-mögliche Qualität zu erhalten. An Informationsgehalt konnte ich mir nicht mehr wünschen.
 
@@ -32,7 +32,7 @@ Der Versand ging schön schnell: Samstag bestellt, Dienstag geliefert.
 ![](DSC_0017.jpg)  
 _Das fertige Fotobuch mit selbst gestaltetem Cover_
 
-Das Buch macht einen wertigen Eindruck und fast sich auch schön an. Durch die gewählte Oberfläche reiht es sich auch gut zwischen den anderen Fotobüchern ein. Ich habe auf einigen Seiten mehrere Fotos positioniert. Natürlich sieht man keinen Unterschied im Druck zum Hintergrund, trotzdem wirkte es im ersten Moment angenehm abgehoben. Das hängt sicher auch mit den gewählten Farben zusammen.
+Das Buch macht einen wertigen Eindruck und fasst sich auch schön an. Durch die gewählte Oberfläche reiht es sich auch gut zwischen den anderen Fotobüchern ein. Ich habe auf einigen Seiten mehrere Fotos positioniert. Natürlich sieht man im Druck keinen Unterschied zum Hintergrund, trotzdem wirkte es im ersten Moment angenehm abgehoben. Das hängt sicher auch mit den gewählten Farben zusammen.
 
 ![](450_DSC_0026.jpg)  
 _Nahaufnahme eines Bereichs zwischen mehreren Fotos_
