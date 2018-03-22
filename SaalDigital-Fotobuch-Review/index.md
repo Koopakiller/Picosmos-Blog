@@ -21,7 +21,7 @@ Einmal bietet Saal Digital ein eigenes Windows-Programm zur Gestaltung an, aber 
 
 Auch als Laie findet man sich eigentlich recht schnell zurecht und kann je eine PDF für das Cover und die Innenseiten erstellen. Zu beachten ist hier, dass die erste Innenseite wirklich bereits auf der Innenseite des Umschlags liegt. Möchte man also weiße Trennseiten haben, muss man diese extra einfügen. Im [Profibereich](http://www.saal-digital.de/service/profibereich/) findet man noch zusätzliche Hinweise um eine best-mögliche Qualität zu erhalten. An Informationsgehalt konnte ich mir nicht mehr wünschen.
 
-Im Anschluss wird die PDF-Datei einfach hochgeladen und man kann sich nochmal eine Preview ansehen und ggf. auch Seiten umsortieren oder noch weitere einfügen. Wie ich finde ideal gelöst.
+Im Anschluss werden die PDF-Dateien einfach hochgeladen und man kann sich nochmal eine Preview ansehen und ggf. auch Seiten umsortieren oder noch weitere einfügen. Wie ich finde ideal gelöst.
 
 Der Versand ging schön schnell: Samstag bestellt, Dienstag geliefert. 
 
