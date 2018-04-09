@@ -36,7 +36,8 @@ Das Heft ist auf der Vorder- und Rückseite mit einer dicken Plastikfolie verseh
 
 Von der Druckqualität her kann ich nichts bemängeln. Sie ist genau so wie ich sie mir vorgestellt habe.  
 
-![](450_DSC_0005.jpg)![](450_DSC_0015.jpg)  
+![](450_DSC_0005.jpg)
+![](450_DSC_0015.jpg)  
 _Nahaufnahmen der Spiralbindung_
 
 Bei einem Spiralgebundenen Fotoheft ist ein kleiner Teil der Fotos durchlöchert bzw. verdeckt. Das sollte man bei der Gestaltung beachten und etwas mehr Platz einplanen.
