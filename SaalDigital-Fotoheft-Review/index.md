@@ -9,7 +9,7 @@
 
 Über die Zeit haben sich diverse Bilder angesammelt die ich lieber in gedruckter Qualität sehen würde als immer nur auf Displays. Es ist schon ein Unterschied ob man gerade auf ein 96DPI Display oder einen 300 DPI Druck guckt.
 
-Das Heft gibt es in den üblichen Foto-Formaten von 13cm x 20cm über A5 bis A4 jeweils im Hoch- und Querformat und noch ca A3 im Querformat. Wer mag kann auch ein quadratisches Buch mit 14, 20 oder 30cm Kantenlänge bestellen. Ich entschied mich für A4 Hochformat, da es meiner Meinung nach eine angenehme Größe für die ausgewählten Motive hat.
+Das Heft gibt es in den üblichen Foto-Formaten von 10cm x 15cm über 13cm x 18cm bis A4 jeweils im Hoch- und Querformat und noch ca A3 im Querformat. Wer mag kann auch ein quadratisches Buch mit 14, 20 oder 30cm Kantenlänge bestellen. Ich entschied mich für A4 Hochformat, da es meiner Meinung nach eine angenehme Größe für die ausgewählten Motive hat.
 
 Alle Details zu den Möglichkeiten kann man unter http://www.saal-digital.de/fotoheft/ einsehen.
 
